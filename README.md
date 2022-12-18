@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [email me](email me)
 
-- ⚡ Fun fact **I can complete a rubix cube within 2 minutes**
+- ⚡ Fun fact **I can complete a Rubix cube within 2 minutes**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
